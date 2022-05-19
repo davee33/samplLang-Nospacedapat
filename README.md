@@ -1,0 +1,2 @@
+# samplLang-Nospacedapat
+ikaw bahala
